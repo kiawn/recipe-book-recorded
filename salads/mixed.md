@@ -9,6 +9,7 @@
 - **14 cup** shredded carrots
 - **1/4 cup** toasted nuts (almonds, walnuts, or pecans), optional
 - **1/4 cup** crumbled feta or goat cheese, optional
+- **15 g** roasted pumpkin seeds
 
 
 ## For the lemon vinaigrette

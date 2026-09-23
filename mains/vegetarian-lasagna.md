@@ -7,7 +7,7 @@
 - **1** large jar (about 24 oz) of marinara sauce
 - **15 oz** ricotta cheese
 - **1** egg
-- **1/2 cup** grated Parmesan cheese
+- **1 cup** grated Parmesan cheese 
 - **2 cups** shredded mozzarella cheese
 - **1 lb** fresh spinach, rinsed and chopped (or use frozen spinach, thawed and drained)
 - **1** medium zucchini, thinly sliced
@@ -16,7 +16,7 @@
 - **2-3 cloves** garlic, minced
 - **1 tablespoon** olive oil
 - **Salt and pepper** to taste
-- **1 teaspoon** dried oregano or Italian seasoning
+- **2 teaspoon** dried oregano or Italian seasoning
 - **Fresh basil** for garnish (optional)
 
 

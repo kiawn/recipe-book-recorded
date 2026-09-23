@@ -20,3 +20,5 @@
 - add salt
 - and mix well
 - enjoy!
+
+- have you tried to add mayo? 

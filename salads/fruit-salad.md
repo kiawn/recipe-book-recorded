@@ -6,9 +6,10 @@
 - 1 cup strawberries, hulled and halved
 - 1 cup blueberries
 - 1 cup grapes, halved
-- 1 banana, sliced
+- 1 banana, sliced or crushed
 - 1 apple, cored and chopped
 - 1 orange, peeled and sectioned
+- 1 kiwi
 - Juice of 1 lime or lemon (to prevent the fruit from browning and to add a bit
   of zing)
 - Fresh mint leaves (optional, for garnish)
@@ -23,6 +24,7 @@
    - Slice the banana.
    - Core and chop the apple.
    - Peel and section the orange.
+   - Peel and chop the kiwi
 
 2. **Mix the Fruits:**
    - In a large bowl, gently mix all the prepared fruits together.
